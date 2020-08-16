@@ -1,4 +1,6 @@
-### Interesting Facts About the Pyramids
+### Zippy Facts
+
+## Interesting Facts About the Pyramids
 
 If you want to come up with interesting facts for your website, then the first step is to find out what is already in existence. As you will learn below, there are a number of fascinating facts that can be created by simply doing a little research online. The great thing about the Internet is that it gives you access to some very specific sources that are not available elsewhere.
 
