@@ -1,4 +1,4 @@
-### Zippy Facts
+# Zippy Facts
 
 ## Interesting Facts About the Pyramids
 
