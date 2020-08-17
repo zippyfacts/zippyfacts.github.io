@@ -6,7 +6,7 @@ If you want to come up with interesting facts for your website, then the first s
 
 Discover more facts at [https://zippyfacts.com](https://zippyfacts.com/)
 
-One interesting fact is that some of the world's oldest known cities were established on the land between the Tigris and the Euphrates River. These ancient sites include Ur, Khorsabad and Kufri, which date back about 5000 BC. Ur was one of the largest cities of Mesopotamia, and was the home of many major kings including King Ashurnasirpal II. Khorsabad was the capital of King Shamash-Shuwa.
+One interesting fact is that some of the world's oldest known cities were established on the land between the Tigris and the Euphrates River. These ancient sites include Ur, Khorsabad and Kufri, which date back about 5000 B.C. Ur was one of the largest cities of Mesopotamia, and was the home of many major kings including King Ashurnasirpal II. Khorsabad was the capital of King Shamash-Shuwa.
 
 Another interesting fact is that in early Egyptian times, the pharaohs would wear masks that would depict them as gods. The pharaohs were also believed to have been born from the womb of the goddess Sekhmet. Other myths related to the pharaohs included the fact that they used to ride on a cart pulled by the winged beast of the sky, and that they had red eyes and pointed ears, as well as long hair that fell around their necks.
 
